@@ -4,6 +4,8 @@
 
 Томаев Владимир Владимирович tvaza@mail.ru (практик)
 
+Ссылка на скопированную туфту: https://drive.google.com/drive/folders/1aFoQPsBDOMUF5-phVOMpjhXmT01jbK9_?usp=drive_link
+
 # Пары
 
 |День недели|Время|Тип пары|Дистант\очка|
